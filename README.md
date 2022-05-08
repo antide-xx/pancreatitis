@@ -1,4 +1,4 @@
-# Pancreatitis
+# Pancreatitis(https://distrokid.com/hyperfollow/antide/pancreatitis)
 ![album_art](https://user-images.githubusercontent.com/67815957/167315915-f8f761fe-118f-4af2-9b99-71519cc770d6.png)
 
 >Pancreatitis is an exploration of the widespread dissonance and confusion uprooted at the turn of the decade. Relief does not exist here and the idea of a normalcy is more of a joke than a comfort. As soon as you start to gain an understanding of the world around you— everything dissolves at once, introducing new information which drastically changes your perception of the world around you. Everything is unstable, and every step risks transporting you to a new and terrifying dimension.
